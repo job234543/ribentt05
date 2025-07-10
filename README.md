@@ -15,4 +15,4 @@
 隐私保护方面，平台采用HTTPS加密技术，确保用户的个人信息和观看记录的安全。平台避免弹出恶意广告，提供无干扰的观看体验，让用户能够享受纯粹的成人影片内容。  
 总之，成人免费观看网凭借高清播放、免注册、无广告的观看体验，以及严格的隐私保护，已成为现代用户观看成人影片的首选平台。平台不断更新资源，保证用户能够及时看到最新的成人影片内容。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/job234543/ribentt05 )</span>
